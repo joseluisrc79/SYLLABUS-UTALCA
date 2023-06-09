@@ -1,0 +1,2 @@
+# SYLLABUS-UTALCA
+Gestión Curricular
